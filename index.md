@@ -12,3 +12,4 @@ Faith was seven years old on the day of the November Riots and barely got away a
 > Faith is a Runner and the main protagonist of Mirror’s Edge: Catalyst. 
 > She is carefree, living on the rooftops of the city of Glass. 
 > She is a fierce daredevil, graceful and elegant, and as efficient as she is powerful. 
+<img src="https://vignette.wikia.nocookie.net/mirrorsedge/images/b/be/Faithcatalyst.png/revision/latest?cb=20160205195804"/>
