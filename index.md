@@ -1,1 +1,2 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+# Faith Connors
+Faith was seven years old on the day of the November Riots and barely got away alive, saved by Noah Kekai, a friend of her parents. He became her adoptive father, raising her on the rooftops far above the city and inspiring her, though that wasn't his intent, to become a Runner. He has made sure to keep her out of the conflict between the Black November resistance movement and the Conglomerate, and Faith has adopted his neutral stance into her own. 
