@@ -9,3 +9,6 @@ Faith was seven years old on the day of the November Riots and barely got away a
 * She despises the Conglomerate that controls the City of Glass and the lives of its inhabitants. 
 * Faith’s attitude towards the government is based in the events of her past, and causes her to rebel against it by becoming a Runner. 
 * Faith often seems to find herself involved in conspiracies surrounding the government due to her family connections or her circumstance as a Runner. 
+> Faith is a Runner and the main protagonist of Mirror’s Edge: Catalyst. 
+> She is carefree, living on the rooftops of the city of Glass. 
+> She is a fierce daredevil, graceful and elegant, and as efficient as she is powerful. 
